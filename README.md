@@ -31,7 +31,9 @@ Explore Premium Options
 The Leather Warehouse offers a variety of desk mats to suit your needs:
 
 [Buy Desk Mat Collection](https://www.thetlwh.com/collections/buy-desk-mat)
+
 [Desk Mats Collection] (https://www.thetlwh.com/collections/desk-mats)
+
 [Leather Desk Mats] (https://www.thetlwh.com/products/desk-mats-leather)  
 
 Adding a leather desk mat is a small upgrade that makes a big difference. It keeps your workspace neat, protects your furniture, and adds a professional touch. Treat your desk today and enjoy the blend of style and practicality.
